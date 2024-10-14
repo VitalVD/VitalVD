@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @VitalVD
-- 👀 I’m interested in Gaming, Ethical Hacking, Programming, Editing and much more.
+- 👀 I’m interested in Gaming, Ethical Hacking, Cyber Security, Programming.
 - 🌱 I’m currently learning Programming and Ethical Hacking. 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me : You can contact me on my email. 
